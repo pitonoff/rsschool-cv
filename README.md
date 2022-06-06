@@ -1,1 +1,1 @@
-thats all, folks!
+https://pitonoff.github.io/rsschool-cv/cv
